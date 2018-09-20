@@ -7,3 +7,4 @@ would benefit anyone who was serious about digital illustration. Also, this topi
 field of study and writing about it could help me build skills needed for a future profession. I
 would like to become more fluent with drawing tablets and I believe that this assignment could
 help me do so. 
+
